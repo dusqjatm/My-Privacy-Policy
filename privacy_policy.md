@@ -1,4 +1,4 @@
-## Privacy Policy
+## Animal Pop Privacy Policy
 
 [Developer/Company name] built the [App Name]Animal Pop app as a Free app. This SERVICE is provided by [Developer/Company name] at no cost and is intended for use as is.
 
